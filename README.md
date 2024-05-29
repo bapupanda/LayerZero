@@ -7,3 +7,5 @@ Sybils have time until 17th may to surrender
 Results on or after 17th May 2024
 
 Gameswift RFP airdrop
+
+Stargate RFP airdrop
